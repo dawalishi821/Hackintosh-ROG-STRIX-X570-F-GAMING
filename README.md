@@ -1,0 +1,1 @@
+# Hackintosh-ROG-STRIX-X570-F-GAMING
